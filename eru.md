@@ -25,5 +25,5 @@ Gari
 Bâton de manioc
 Couscous de maïs
 
-Bon appétit ! 🇨🇲
+Bon appétit ! 🇨
 
